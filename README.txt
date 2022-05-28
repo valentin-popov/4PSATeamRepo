@@ -1,0 +1,1 @@
+Atentie! Aplicatie foarte periculoasa.
