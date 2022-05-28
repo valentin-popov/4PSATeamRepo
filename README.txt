@@ -1,1 +1,1 @@
-Atentie! Aplicatie foarte periculoasa.
+Urmati pasii din reteta. Aduceti contributii.
