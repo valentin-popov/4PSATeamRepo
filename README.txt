@@ -1,1 +1,1 @@
-Urmati pasii din reteta.
+Urmati pasii din reteta. Aduceti contributii.
